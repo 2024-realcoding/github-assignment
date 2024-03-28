@@ -1,1 +1,0 @@
-# Ki Ju Jeong
