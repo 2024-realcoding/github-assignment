@@ -1,2 +1,0 @@
-# Donghun Baek
-### Digital Bard
